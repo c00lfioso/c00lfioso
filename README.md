@@ -10,6 +10,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Gravitas+One&weight=100&size=16&pause=1000&color=FF0000&background=000000&multiline=true&width=435&lines=%E3%85%A4%E3%85%A4call+me+c00l+%2C+Bobette+or+Scarlett+!%E3%85%A4;%E3%85%A4Partner+can+only+call+me+pet+names+tsk+tskk-%E3%85%A4)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Gravitas+One&weight=100&size=16&pause=1000&color=FF0000&background=000000&multiline=true&width=435&lines=%E3%85%A4%E3%85%A4i+am+very+C00L+and+SENSITIVE+!%E3%85%A4;%E3%85%A4But+doesn't+mean+I'm+uncomf+with+bad+nicknames%E3%85%A4)](https://git.io/typing-svg)
 
-[c00l strawpage](https://christmascookie.straw.page/) | 6 or 7 boii | [c00l atabook](https://bobette-carolynne.atabook.org/)
+[c00l strawpage](https://c00lfioso.straw.page/) | 6 or 7 boii | [c00l atabook](https://bobette-carolynne.atabook.org/)
 
 how do i put the trans blinkie in there ples fork thi
