@@ -13,3 +13,6 @@
 [c00l strawpage](https://c00lfioso.straw.page/) | 6 or 7 boii | [c00l atabook](https://bobette-carolynne.atabook.org/)
 
          i LOVE mafioso x coolkid you could tell
+
+OWNER OF THE ACCOUNT:
+my GitHub isn't loading so I'm gonna say this, I'm always and mostly rude as a joke so sorry abt that
